@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ayushxzealous
-- 👀 I’m interested in entrepreneurship and blockchain.
+- 👀 I’m interested in entrepreneurship, business and blockchain.
 - 🌱 I’m currently learning web development and competitive programming.
 - 📫 Mail me at ayushxzealous@gmail.com
 
